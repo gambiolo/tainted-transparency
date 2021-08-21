@@ -4,9 +4,9 @@ In 2015 we had the opportunity to gather brillant minds around the table at SXSW
 Wine was definetly poored into Bruce's glass, and Joi Ito called us ''trouble makers'' pop corn at hand, the show could begin.
 
 
-At the end of this rather interesting discussion Bruce Sterling suddenly shouted to the Joi Ito out of the nowhere ''you're not a community untill you face your dark side'' as if wine was kicking in. 
+At the end of this rather interesting discussion Bruce Sterling suddenly shouted to Joi Ito out of the nowhere ''you're not a community untill you face your dark side'' as if wine was kicking in. 
 
-Realy by now this tweet should be minted as an NFT (alcohol is bad for health kids)
+Realy by now this tweet should be minted as an NFT (also alcohol is bad for health kids)
 
 ![Screen Shot 2021-08-14 at 10 53 54 AM](https://user-images.githubusercontent.com/86488172/129442140-2599372c-2cb8-4fdd-ae9b-32889e301c07.png)
 
