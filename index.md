@@ -25,7 +25,7 @@ Transparency is an 18 century concept rarely revised in western culture, if you 
 
 ### open source / transparency / inclusivity / diversity 
 
-Glass is hard and transparent, but can easily break in pieces and we wish to have avoid all the dramamatic fractals with Joi Ito having to resign from the medialab etc... Using media and academia to hide the truth creates more conspiracies than ever. Our time is precious and your generation's behaviour is toxic, kids are watching.
+Glass is hard and transparent, but can easily break in pieces and we wish to have avoid all the dramamatic fractals with Joi Ito having to resign from the medialab etc... Using media and academia to hide the truth creates more conspiracies than ever. kids are watching.
 
 
 ![Screen Shot 2021-08-14 at 10 44 38 AM](https://user-images.githubusercontent.com/86488172/129442592-a1adca7c-49f5-470a-ab03-dec9f3097628.png)
