@@ -1,21 +1,18 @@
 
-In 2015 we had the opportunity to gather brillant minds around the table at SXSW, We curated lectures and workshops with Bruce Sterling as techno-Shaman in chief distibuting punches to Joi Ito ex guru and director at the MIT medialab. Also George Church (god complex) was supposed to be here...Sadly George and his god complex could not attempt the event and never showed up. 
+## OPACITY AND TRANSPARENCY
 
-Wine was definetly poored into Bruce's glass, and Joi Ito called us ''trouble makers'' pop corn at hand, the show could begin.
+In 2015 we had the opportunity to gather brillant minds around the table at SXSW, We curated lectures and workshops with Bruce Sterling as techno-Shaman in chief distibuting punches to Joi Ito ex guru and director at the MIT medialab. Also George Church (god complex) was supposed to be here...Sadly George did not attempt the event and never showed up. 
 
+Wine was definetly poored into Bruce's glass, and Joi Ito called us ''trouble makers'' . At the end of this rather interesting discussion Bruce suddenly shouted to the audience ''you're not a community untill you face your dark side'' as if wine was kicking in propper. 
 
-At the end of this rather interesting discussion Bruce Sterling suddenly shouted to Joi Ito out of the nowhere ''you're not a community untill you face your dark side'' as if wine was kicking in. 
-
-Realy by now this tweet should be minted as an NFT (also alcohol is bad for health kids)
+Realy by now this tweet should be minted as an NFT (also note we are not promoting alcoholic beverages)
 
 ![Screen Shot 2021-08-14 at 10 53 54 AM](https://user-images.githubusercontent.com/86488172/129442140-2599372c-2cb8-4fdd-ae9b-32889e301c07.png)
 
 
-Most kids accepting grants from corporations at MIT medialab have never been trained in any critical or political theories, partly because they are realy young and virgin in thoughts.  
+At MIT Medialab you come to make yourself a confortable career, ethic is the least important thing for these individuals. Most kids accepting grants from corporations at MIT medialab have never been trained in any critical or political theories, partly because they are realy young and virgin in thoughts, they're just good at math. Math is cool, have you tried history of western science thought?
 
-As soon as these priviledged individuals are confronted with reality, they turn a blind eye to it. A big part of mistrust in journalism and academia comes from a lack of transparency within fundings, even thought transparency is at the core of these institutional narratives, it blurs the line of what truth is. 
-
-Transparency is an 18 century concept rarely revised in western culture, if you can see thru a glass for instance then it's transparent, but you do not see the thing you are suposed to see, you just see thru it. Transparency hides the physical structure, just as much as the structural fascist/neoliberal/collonial structures that uses transparency as a way to hide in plain sight. 
+Transparency is an 18 century concept rarely revisited in western culture, if you can see thru a glass then it's transparent, but you do not see the thing you are suposed to see, you just see thru it. Transparency hides the physical structures, of the glass itself, here the glass can be facebook, or academia or journalism, they all tend to create information within structural fascist or liberal & collonial structures that uses transparency as a way to hide in plain sight. 
 
 
 
@@ -25,7 +22,7 @@ Transparency is an 18 century concept rarely revised in western culture, if you 
 
 ### open source / transparency / inclusivity / diversity 
 
-Glass is hard and transparent, but can easily break in pieces and we wish to have avoid all the dramamatic fractals with Joi Ito having to resign from the medialab etc... Using media and academia to hide the truth creates more conspiracies than ever. kids are watching.
+Glass is hard and transparent, but can easily break in pieces and we wish to have avoid all the dramamatic fractals with Joi Ito hwho had to resign from his positin as Director...he did not deserve it, but by protecting Epstein actions and beeing backed by 70% male students from academia just shows you what academia needs to decolonize before wanting to "change the world" or we might encounter more and more conspiracy theories and anti-science narrative. kids are watching.
 
 
 ![Screen Shot 2021-08-14 at 10 44 38 AM](https://user-images.githubusercontent.com/86488172/129442592-a1adca7c-49f5-470a-ab03-dec9f3097628.png)
